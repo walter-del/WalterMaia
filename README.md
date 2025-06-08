@@ -6,7 +6,7 @@
 
 ## 💡 Sobre mim
 
-* 🚀 Explorando novas tecnologias e desenvolvendo soluções de impacto.
+* 🚀 Explorando novas tecnologias e desenvolvendo soluções.
 * 📖 Estudando Ciência da Computação na Cesar School.
 * 🧠 Aprofundando conhecimentos sobre blockchains, DeFi e descentralização.
 * 📚 Aprendendo mais sobre tecnologia e liberdade econômica.
