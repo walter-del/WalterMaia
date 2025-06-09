@@ -37,7 +37,7 @@
 ## 📬 Onde me encontrar
 
 * 📧 Email: [waltinhonetofirst@gmail.com](mailto:waltinhonetofirst@gmail.com)
-* 💼 [LinkedIn](https://www.linkedin.com/in/walter-maia-1287a1238/)
+* 💼 Linkedln: [LinkedIn](https://www.linkedin.com/in/walter-maia-1287a1238/)
 
 ---
 
