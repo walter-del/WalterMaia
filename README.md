@@ -38,6 +38,8 @@
 
 * 📧 Email: [waltinhonetofirst@gmail.com](mailto:waltinhonetofirst@gmail.com)
 * 💼 Linkedln: [LinkedIn](https://www.linkedin.com/in/walter-maia-1287a1238/)
+* 🧠 Substack: [Substack](https://substack.com/@entusiastacriptogmailcom?r=5sqtxu&utm_medium=ios&utm_source=profile)
+
 
 ---
 
